@@ -1,4 +1,4 @@
-## Hi ! 🎀 ₊˚๑##
+## Hi ! 🎀 ₊˚๑
 
 I'm Sherah, an IT Sophomore and Gen AI Fluency Intern from the Philippines.
 
